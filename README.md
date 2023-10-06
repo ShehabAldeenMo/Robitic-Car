@@ -1,5 +1,5 @@
 # Robitic-Car
-LinkdIn Link :
+LinkdIn Link : https://www.linkedin.com/posts/shehab-aldeen-mohammed-0b3207228_avr-imt-robiticabrcar-activity-7058056678285484032--hhb?utm_source=share&utm_medium=member_desktop 
 
 
 
